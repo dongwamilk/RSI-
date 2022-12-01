@@ -1,3 +1,7 @@
+#網頁版
+https://liefom8eaoddnqq49dqesw.on.drv.tw/RSI%E6%8C%87%E6%A8%99%E5%9B%9E%E6%B8%AC.html
+
+
 # RSI-
 RSI指標
 目的: 評估多方及空方力道的強弱
